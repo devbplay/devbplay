@@ -1,5 +1,5 @@
 
 # Matheus Antunes 👋
-dev frontend 💛
+dev frontend 💙
 
 always learning. 🚀
